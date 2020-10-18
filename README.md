@@ -1,0 +1,2 @@
+# web_informations
+HI .YOU CAN GET WEB INFORMATIONS WITH THIS SCRIPT..,🚶
